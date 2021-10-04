@@ -1,1 +1,1 @@
-# releyannu.github.io
+# Privacy Policy - AutoResponder Android App
